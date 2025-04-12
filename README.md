@@ -5,7 +5,7 @@
 ***
 
 1.⠀BYF :⠀i can be mean ++ offensive . if i make you upset - just tell me , i will apologize if youre reasonable .  |||  plural (system) . i do not give out details publicly
-  |||  chronically physically + mentally ill . this causes me issues
+  |||  chronically physically + mentally ill . this causes me issues  |||  i use slurs i can reclaim
 
 ***
 
