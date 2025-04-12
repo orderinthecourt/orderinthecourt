@@ -1,3 +1,5 @@
+# **\> collective info . . .**
+
 ＠⠀⠀court / trial / order⠀⠀ᛝᛝ⠀⠀ no prns (but i rlly dont care)⠀⠀𓎟𓍢
 
 × ×⠀⠀minor, friends can ask 4 age⠀⠀︵⠀⠀taken 2x . smiile >_0⠀⠀× ×
