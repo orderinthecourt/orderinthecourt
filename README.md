@@ -13,6 +13,6 @@
 
 ***
 
-3.⠀MAIN INTERESTS :⠀ava/avm  |||  house md  |||  dandys world  |||  epic, the musical
+3.⠀MAIN INTERESTS :⠀ava/avm (avafell fans int IMMEDIATELY !! iykyk ^_^)  |||  house md  |||  dandys world  |||  epic, the musical
 
 4. SIDE INTERESTS :⠀idv  |||  phighting  |||  regretevator  |||  forsaken  |||  elevator hitch  |||  cold front  |||  dead plate  |||  the mandela catalogue  |||  trauma center (wii u + nintendo ds game)
