@@ -11,7 +11,7 @@
 
 ***
 
-2.⠀DNI :⠀under 13  |||  basic dni criteria  |||  stupid drama + if ur constantly in drama  |||  helluva boss / hazbin hotel fans. u guys piss me off  |||  if u mention darkship content 2 me (ships, art, etc) ur blocked  |||  if u have any beef with my friends SPECIFICALLY my partners (endearr) either block me or ill block you  |||  also just block extremely freely
+2.⠀DNI :⠀under 13  |||  basic dni criteria  |||  stupid drama + if ur constantly in drama  |||  helluva boss / hazbin hotel fans. u guys piss me off  |||  if u mention darkship content 2 me (ships, art, etc) ur blocked  |||  if u have any beef with my friends SPECIFICALLY my partners (endearr ++ spencer but he doesnt play ponytown much / has a github ,,) either block me or ill block you  |||  also just block extremely freely
 
 ***
 
