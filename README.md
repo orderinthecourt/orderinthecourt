@@ -11,10 +11,12 @@
 
 ***
 
-2.⠀DNI :⠀under 13  |||  basic dni criteria  |||  stupid drama + if ur constantly in drama  |||  helluva boss / hazbin hotel fans. u guys piss me off  |||  if u mention darkship content 2 me (ships, art, etc) ur blocked  |||  if u have any beef with my friends SPECIFICALLY my partners (endearr ++ spencer but he doesnt play ponytown much / has a github ,,) either block me or ill block you  |||  also just block extremely freely
+2.⠀DNI :⠀under 13  |||  basic dni criteria ||| if u mention darkship content 2 me (ships, art, etc) ur blocked  |||  if u have any beef with my friends SPECIFICALLY my partners (endearr ++ spencer but he doesnt play ponytown much / has a github ,,) |||  also just block extremely freely
+
+^ i know people dont follow dnis but im just letting u know if u apply to any of these and choose to interact with me ur getting blocked . i do have exceptions to some but they are small
 
 ***
 
-3.⠀MAIN INTERESTS :⠀ava/avm (avafell fans int IMMEDIATELY !! iykyk ^_^)  |||  house md  |||  dandys world  |||  epic, the musical  |||  phighting
+3.⠀MAIN INTERESTS :⠀ava/avm (avafell fans int IMMEDIATELY!!)  |||  house md  |||  dandys world  |||  epic, the musical  |||  phighting
 
 4. SIDE INTERESTS :⠀idv  |||  regretevator  |||  forsaken  |||  elevator hitch  |||  cold front  |||  dead plate  |||  the mandela catalogue  |||  trauma center (wii u + nintendo ds game)
