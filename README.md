@@ -1,8 +1,10 @@
+![](https://i.postimg.cc/43hkWcqJ/Untitled1222-20250427130734.png)
+
 # **\> collective info . . .**
 
-＠⠀⠀court / trial / order⠀⠀ᛝᛝ⠀⠀ no prns (but i rlly dont care)⠀⠀𓎟𓍢
+＠⠀⠀court / trial / order⠀⠀ᛝᛝ⠀⠀ ask prns (he/him always ok)⠀⠀𓎟𓍢
 
-× ×⠀⠀bodily minor, under 16 & over 13⠀⠀︵⠀⠀taken 2x . smiile >_0⠀⠀× ×
+× ×⠀⠀14 , bday is june 22⠀⠀︵⠀⠀taken 2x . smiile >_0⠀⠀× ×
 
 ***
 
@@ -20,3 +22,5 @@
 3.⠀MAIN INTERESTS :⠀ava/avm (avafell fans int IMMEDIATELY!!)  |||  house md  |||  dandys world  |||  epic, the musical  |||  phighting
 
 4. SIDE INTERESTS :⠀idv  |||  regretevator  |||  forsaken  |||  elevator hitch  |||  cold front  |||  dead plate  |||  the mandela catalogue  |||  trauma center (wii u + nintendo ds game)
+
+![](https://i.postimg.cc/NfpcFBRw/download-8.png)
