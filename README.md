@@ -1,22 +1,24 @@
-# **\> collective info . . .**
+i havent been on ponytown in 4ever...havent used github in 4ever. this wont be fancy until i figure this out again
 
-＠⠀⠀court / trial / order⠀⠀ᛝᛝ⠀⠀ ask prns (he/him always ok)⠀⠀𓎟𓍢
+@  jester / narcissus / acrobat / court / deaths / fool   <- names you can call me   𓈊    avoid pronouns,  he / it if you have to
 
-× ×⠀⠀14 , bday is june 22⠀⠀︵⠀⠀taken 2x . smiile >_0⠀⠀× ×
+taken 3x (matt, saint, soul)    𓈊    15 years old    𓈊    bday is june 22
 
-***
-
-1.⠀BYF :⠀i can be mean ++ offensive . if i make you upset - just tell me , i will apologize if youre reasonable .  |||  plural (system) . i do not give out details publicly
-  |||  chronically physically + mentally ill . this causes me issues  |||  i use slurs i can reclaim
+some things we enjoy right now    𝅄𝅄   no, im not a human.  QSMP.  identity v.  dandys world.  phighting.  jesters.  birds.  flowers
 
 ***
+### BEFORE YOU INTERACT (BYI)
+cluster b ++ i am a system that will use i/we interchangeably ++ unmentioned conditions, i'm not comfortable specifying to strangers. these are all things that affect my day to day life and how i will likely communicate with you / people
 
-2.⠀DNI :⠀under 13  |||  basic dni criteria ||| if u mention darkship content 2 me (ships, art, etc) ur blocked  |||  if u have any beef with my friends SPECIFICALLY my partners (endearr ++ spencer but he doesnt play ponytown much / has a github ,,) |||  also just block extremely freely
+if i get along with you im absolutely okay with giving out socials (simplyplural, discord, etc)
 
-^ i know people dont follow dnis but im just letting u know if u apply to any of these and choose to interact with me ur getting blocked . i do have exceptions to some but they are small
+i am not dry when u get to know me i promise this is just for the sake of my github
 
+typically offtab, i might not immediately respond (if at all), im not trying to ignore you
 ***
+### I WILL NOT INTERACT (IWNI)
+t.r.a.s.h (transphobes, racists, ableists, sexists, homophobes)    𝅄𝅄    pro/neu endo    𝅄𝅄    petty drama and those who are constantly and willingly involved with petty drama    𝅄𝅄    darkshippers && loli/shota enjoyers    𝅄𝅄    people involved with sh/ed content    𝅄𝅄    under 13    𝅄𝅄    if you are in contact with someone who has hurt me, are someone who has hurt me, or are someone who has hurt someone close to me, i will not interact for me and my loved ones personal comfort    𝅄𝅄    tcoaal fans (i promised myself i wouldn't add fandoms...failed)    𝅄𝅄    i really dont need a reason to block you or not want to interact with you, i block/avoid freely
 
-3.⠀MAIN INTERESTS :⠀ava/avm (avafell fans int IMMEDIATELY!!)  |||  house md  |||  dandys world  |||  identity v  |||  phighting
+i say specifically "i will not interact" because i feel like its impossible to make sure every person ever in your dni avoids interacting with you, and i know people will likely not see it - so its more of a warning that "if i find out you apply to any of these, i will avoid interacting with you from then on or i might block you"
 
-4. SIDE INTERESTS : epic, the musical  |||  regretevator  |||  forsaken  |||  elevator hitch  |||  cold front  |||  dead plate  |||  the mandela catalogue  |||  trauma center (wii u + nintendo ds game)
+i will interact with you if you are 13 or 18+ but i will likely avoid getting close to you for my own personal comfort
