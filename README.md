@@ -12,7 +12,7 @@ cluster b ++ i am a system that will use i/we interchangeably ++ unmentioned con
 
 if i get along with you im absolutely okay with giving out socials (simplyplural, discord, etc)
 
-i am not dry when u get to know me i promise this is just for the sake of my github
+i am not dry when u get to know me i promise this is just for the sake of my github, BUT i am extremely socially awkward (we suffer from social anxiety, and are trying to get out of our shell .)
 
 typically offtab, i might not immediately respond (if at all), im not trying to ignore you
 ***
