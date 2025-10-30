@@ -8,7 +8,7 @@ some things we enjoy right now    𝅄𝅄   no, im not a human.  QSMP. �
 
 ***
 ### BEFORE YOU INTERACT (BYI)
-cluster b ++ i am a system that will use i/we interchangeably ++ unmentioned conditions, i'm not comfortable specifying to strangers. these are all things that affect my day to day life and how i will likely communicate with you / people
+adhd + cluster b + system (that uses i/we interchangeably) ++ unlisted conditions . these things WILL affect how i communicate and see people, please be patient with me .
 
 if i get along with you im absolutely okay with giving out socials (simplyplural, discord, etc)
 
